@@ -1,0 +1,1 @@
+![CV](https://github.com/dkushche/dkushche/blob/master/D.R.Kushchevskyi.png?raw=true)
